@@ -1,0 +1,5 @@
+-C# and Python👨‍💻
+-I'm denied with 3D design🙅‍♂️
+-I love develop and play video games🎮
+-First grade of scientific high school👨‍🎓
+-Basketball player⛹️
